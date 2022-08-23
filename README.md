@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Edrasx
+- 🌱 I’m currently learning coding
